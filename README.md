@@ -41,7 +41,7 @@ Actualmente gestiono mi propia infraestructura doméstica para testing y servici
 ## 🎯 Intereses
 
 **🎮 Gaming:** *Counter-Strike 2*, *Minecraft*  
-**📺 Anime:** *Sousou no Frieren*, *Monster*  
+**📺 Anime:** *Umineko no Naku Koro ni*, *Monster*  
 **🎵 Listening to:** *Taylor Swift, Sabrina Carpenter, Chappell Roan, Olivia Rodrigo*
 
 ---
